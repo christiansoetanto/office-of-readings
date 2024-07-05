@@ -1,0 +1,16 @@
+
+
+**From a book on the Predestination of the Saints by Saint Augustine, bishop**
+
+(Cap. 15, 30-31: PL 44, 981-983)
+
+_In his human nature Jesus Christ is descended from the line of David_
+
+The greatest glory of predestination and grace is the Savior himself, _the mediator between God and men, the man Christ Jesus._ What, I ask you, did his human nature do in the way of good works or of faith to merit beforehand this glory? Give me an answer to this question: How did his humanity merit to be taken up by the Word, coeternal with the Father, into unity with his person and so to be the only-begotten Son of God? What goodness, of whatever kind, did he possess beforehand? What had he done, what faith had he shown, what request had he made, that he should attain to that point of preeminence, beyond all human power of description? Was it not through the action of the Word in taking this humanity to himself that, from the moment when he came into existence, this human being came into existence as the only Son of God?
+
+We must keep before our eyes the very source of grace, taking its origin in Christ, our head, and flowing through all his members according to the capacity of each. The grace which makes any man a Christian from the first moment of his coming to believe is the same grace which made this man the Christ from his coming to be as man. The Spirit through whom men are reborn is the same Spirit through whom Christ was born. The Spirit by whom we receive forgiveness of sins is the same Spirit who brought it about that Christ knew no sin. Clearly, God knew that he would do all this. The predestination of the saints is the same predestination that reached its greatest glory in the Saint above all other saints. Who can deny this among those who understand correctly the utterances of Truth? For we have been taught that inasmuch as the son of God became man, the Lord of glory himself was the object of predestination.
+
+Jesus then was predestined. He who was to be the son of David in his human nature was to be the Son of God in power through the action of the Spirit of holiness, for he was born of the Holy Spirit and of the Virgin Mary. This unique taking to himself of a human nature by God the Word came about in such a way, too mysterious for our understanding, that with truth and accuracy the Word could be called at one and the same time the Son of God and the son of man: son of man because of the human nature that was taken, and Son of God because it was the only-begotten God who took that human nature. We are not to believe in God as a quaternity but as a trinity.
+
+Human nature was in this case predestined to so marvelous, so sublime, so perfect a dignity that it could not be raised higher; just as the divine nature itself could not demean itself any lower than by taking human nature with all its weakness, even to dying on a cross. Just as one Christ was predestined to be our head, so we, the many, were predestined to be his members. Let there be no mention here of human merits; they were lost through Adam. Let God’s grace reign supreme, as it does through Jesus Christ, our Lord, the only Son of God, the one Lord. If anyone can find in Christ, our head, any merits preceding his unique birth, he may look also for merits in ourselves preceding our rebirth as his many members.
+
