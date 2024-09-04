@@ -1,0 +1,14 @@
+
+
+**From a commentary on John by Origen, priest**
+
+(Tomus 10, 20: PG 14, 370-371)
+
+_Christ spoke of his body as a temple_
+
+_Destroy this temple and in three days I will raise it up._ It seems to me that Jesus meant the Jews in this episode to stand for sensual men and those desirous of carnal and sensual things. These Jews were angry at his expulsion of the people who were turning his Father’s house into a market. So they asked for a sign to justify these actions, a sign that would show that the Word of God, whom they refused to accept, was acting rightly. The Savior’s reply combines a statement about the temple with a prophecy about his own body, for in answer to their question: _What sign can you give to justify your conduct?_ he says: _Destroy this temple and in three days I will raise it up._
+
+Indeed, I think that both the temple and the body of Jesus can be seen in a single perspective as a type of the Church. For the Church is being built out of living stones; it is in process of becoming _a spiritual dwelling for a holy priesthood, raised on the foundations of apostles and prophets, with Christ as its chief cornerstone._ Hence it bears the name “temple.” On the other hand, it is written: _You are the body of Christ, and individually members of it._ Thus even the harmonious alignment of the stones should seem to be destroyed and fragmented and, as described in the twenty-first psalm, all the bones which go to make up Christ’s body should seem to be scattered by insidious attacks in persecutions or times of trouble, or by those who in days of persecution undermine the unity of the temple, nevertheless the temple will be rebuilt and the body will rise again on the third day, after the day of evil which threatens it and the day of consummation which follows. For the third day will dawn upon a new heaven and a new earth when these bones that form the whole house of Israel are raised up on that great day of the Lord, when death has been defeated. So the resurrection of Christ, accomplished after his suffering on the cross, embraces the mystery of the resurrection of his whole body.
+
+For just as that physical body of Christ was crucified and buried, and afterward raised up, so in the same way the whole body of Christ’s holy ones has been crucified and lives no longer with its own life. For each of them, like Paul, makes his boast of nothing else but the cross of our Lord Jesus Christ, by which he has himself been crucified to the world, and the world to him. But each Christian has not only been crucified with Christ and crucified to the world; he has been buried with Christ too, as Paul tells us: _We have been buried with Christ._ But as though already in possession of some pledge of the resurrection, Paul goes on to say: _And we have risen with him._
+
