@@ -1,0 +1,14 @@
+
+
+**From the Decree on the Life and Ministry of Priests of the Second Vatican Council**
+
+(Presbyterorum Ordinis 3, 12)
+
+_The vocation of priests to the life of perfection_
+
+Priests are made in the likeness of Christ the Priest by the Sacrament of Orders, so that they may, in collaboration with their bishops, work for the building up and care of the Church which is the whole Body of Christ, acting as ministers of him who is the Head. Like all other Christians they have received in the sacrament of Baptism the symbol and gift of such a calling and such grace that even in human weakness they can and must seek for perfection, according to the exhortation of Christ: _Be you therefore perfect, as your heavenly Father is perfect_. Priests are bound, however, to acquire that perfection in special fashion. They have been consecrated by God in a new manner at their ordination and made living instruments of Christ the Eternal Priest that they may be able to carry on in time his marvelous work whereby the entire family of man is again made whole by power from above. Since, therefore, every priest in his own fashion acts in place of Christ himself, he is enriched by a special grace, so that, as he serves the flock committed to him and the entire People of God, he may the better grow in the grace of him whose tasks he performs, because to the weakness of our flesh there is brought the holiness of him who for us was made a High Priest _holy, guiltless, undefiled not reckoned among us sinners_.
+
+Christ, whom the Father sanctified, consecrated and sent into the world, _gave himself for us that he might redeem us from all iniquity and cleanse for himself an acceptable people, pursuing good works_, and thus through suffering entered into his glory. In like fashion, priests consecrated by the anointing of the Holy Spirit and sent by Christ must mortify the works of the flesh in themselves and give themselves entirely to the service of men. It is in this way that they can go forward in that holiness with which Christ endows them to perfect man.
+
+Hence, those who exercise the ministry of the spirit and of justice will be confirmed in the life of the spirit, so long as they are open to the Spirit of Christ, who gives them life and direction. By the sacred actions which are theirs daily as well as by their entire ministry which they share with the bishop and their fellow priests, they are directed to perfection in their lives. Holiness does much for priests in carrying on a fruitful ministry. Although divine grace could use unworthy ministers to effect the work of salvation, yet for the most part God chooses, to show forth his wonders, those who are more open to the power and direction of the Holy Spirit, and who can by reason of their close union with Christ and their holiness of life say with Saint Paul: _And yet I am alive; or rather, not I; it is Christ that lives in me_.
+
