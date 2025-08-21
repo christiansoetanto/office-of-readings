@@ -1,0 +1,14 @@
+
+
+**From the apostolic constitution _Divino afflatu_ of Saint Pius X, pope**
+
+(AAS 3 \[1911\], 633-635)
+
+_The song of the Church_
+
+The collection of psalms found in Scripture, composed as it was under divine inspiration, has, from the very beginnings of the Church, shown a wonderful power of fostering devotion among Christians as they offer _to God a continuous sacrifice of praise, the harvest of lips blessing his name._ Following a custom already established in the Old Law, the psalms have played a conspicuous part in the sacred liturgy itself, and in the divine office.  Thus was born what Basil calls _the voice of the Church,_ that singing of psalms, which is the daughter of that hymn of praise (to use the words of our predecessor, Urban VIII) _which goes up unceasingly before the throne of God and of the Lamb,_ and which teaches those especially charged with the duty of divine worship, as Athanasius says, _the way to praise God, and the fitting words in which to bless him._ Augustine expresses this well when he says: _God praised himself so that man might give him fitting praise; because God chose to praise himself man found the way in which to bless God._
+
+The psalms have also a wonderful power to awaken in our hearts the desire for every virtue. Athanasius says: _Though all Scripture, both old and new, is divinely inspired and has its use in teaching, as we read in Scripture itself, yet the Book of Psalms, like a garden enclosing_ the fruits of _all the other_ books, _produces its fruits in song, and in the process of singing brings forth its own special fruits to take their place beside them._ In the same place Athanasius rightly adds: _The psalms seem to me to be like a mirror, in which the person using them can see himself, and the stirrings of his own heart; he can recite them against the background of his own emotions._ Augustine says in his Confessions: _How I wept when I heard your hymns and canticles, being deeply moved by the sweet singing of your Church.  Those voices flowed into my ears, truth filtered into my heart, and from my heart surged waves of devotion. Tears ran down, and I was happy in my tears._
+
+Indeed, who could fail to be moved by those many passages in the psalms which set forth so profoundly the infinite majesty of God, his omnipotence, his justice and goodness and clemency, too deep for words, and all the other infinite qualities of his that deserve our praise? Who could fail to be roused to the same emotions by the prayers of thanksgiving to God for blessings received, by the petitions, so humble and confident, for blessings still awaited, by the cries of a soul in sorrow for sin committed? Who would not be fired with love as he looks on the likeness of Christ, the redeemer, here so lovingly foretold? His was the voice Augustine _heard in every psalm, the voice of praise, of suffering, of joyful expectation, of present distress._
+
