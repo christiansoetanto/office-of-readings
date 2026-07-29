@@ -1,0 +1,14 @@
+
+
+**From a treatise on the Lord’s Prayer by Saint Cyprian, bishop and martyr**
+
+(Nn. 18:22: CSEL 3, 280-281-283-284)
+
+_After the gift of bread we ask pardon for our sins_
+
+As the Lord’s Prayer continues, we ask: _Give us this day our daily bread._ We can understand this petition in a spiritual and in a literal sense. For in the divine plan both senses may help toward our salvation. For Christ is the bread of life; this bread does not belong to everyone, but is ours alone. When we say, our Father, we understand that he is the father of those who know him and believe in him. In the same way we speak of our daily bread, because Christ is the bread of those who touch his body.
+
+Now, we who live in Christ and receive his eucharist, the food of salvation, ask for this bread to be given us every day. Otherwise we may be forced to abstain from this communion because of some serious sin. In this way we shall be separated from the body of Christ, as he taught us in the words: _I am the bread of life which has come down from heaven. Anyone who eats my bread will live for ever and the bread that I will give is my flesh for the life of the world._ Christ is saying, then, that anyone who eats his bread will live for ever. Clearly they possess life who approach his body and share in the Eucharistic communion. For this reason we should be apprehensive and pray that no one has to abstain from this communion, lest he be separated from the body of Christ and be far from salvation. Christ has warned of this: _If you do not eat the flesh of the Son of man and drink his blood you will have no life in you._ We pray for our daily bread, Christ, to be given to us. With his help, we who live and abide in him will never be separated from his body and his grace.
+
+After this we ask pardon for our sins, in the words: _and forgive us our trespasses._ The gift of bread is followed by a prayer for forgiveness. To be reminded that we are sinners and forced to ask forgiveness for our faults is prudent and sound. Even while we are asking God’s forgiveness, our hearts are aware of our state! This command to pray daily for our sins reminds us that we commit sin every day. No one should complacently think himself innocent, lest his pride lead to further sin. Such is the warning that John gives us in his letter: _If we say we have no sin, we deceive ourselves, and the truth is not in us. If we confess our sins, the Lord is faithful and just, and will forgive our sins._ His letter includes both points, that we should beg for forgiveness for our sins, and that we receive pardon when we do. He calls the Lord faithful, because he remains loyal to his promise, by forgiving us our sins. He both taught us to pray for our sins and our faults, and also promised to show us a father’s mercy and forgiveness.
+
