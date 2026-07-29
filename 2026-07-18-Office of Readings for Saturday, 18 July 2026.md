@@ -1,0 +1,16 @@
+
+
+**From the treatise On the Mysteries by Saint Ambrose, bishop**
+
+(Nn. 52-54,58: SC 25 bis, 186-188,190)
+
+_The sacrament that you receive is effected by the words of Christ_
+
+We see that grace can accomplish more than nature, yet so far we have been considering instances of what grace can do through a prophet’s blessing. If the blessing of a human being had power even to change nature, what do we say of God’s action in the consecration itself, in which the very words of the Lord and Savior are effective? If the words of Elijah had power even to bring down fire from heaven, will not the words of Christ have power to change the natures of the elements? You have read that in the creation of the whole world _he spoke and they came to be; he commanded and they were created._ If Christ could by speaking create out of nothing what did not yet exist, can we say that his words are unable to change existing things into something they previously were not? It is no lesser feat to create new natures for things than to change their existing natures.
+
+What need is there for argumentation? Let us take what happened in the case of Christ himself and construct the truth of this mystery from the mystery of the incarnation. Did the birth of the Lord Jesus from Mary come about in the course of nature? If we look at nature we regularly find that conception results from the union of man and women. It is clear then that the conception by the Virgin was above and beyond the course of nature. And this body that we make present is the body born of the Virgin. Why do you expect to find in this case that nature takes its ordinary course in regard to the body of Christ when the Lord himself was born of the Virgin in a manner above and beyond the order of nature? This is indeed the true flesh of Christ, which was crucified and buried. This is then in truth the sacrament of his flesh.
+
+The Lord Jesus himself declares: _This is my body._ Before the blessing contained in these words a different thing is named; after the consecration a body is indicated. He himself speaks of his blood. Before the consecration something else is spoken of; after the consecration blood is designated. And you say: “Amen,” that is: “It is true.” What the mouth utters, let the mind within acknowledge; what the word says, let the heart ratify.
+
+So the Church, in response to grace so great, exhorts her children, exhorts her neighbors, to hasten to these mysteries: _Neighbors,_ she says, _come and eat; brethren, drink and be filled._ In another passage the Holy Spirit has made clear to you what you are to eat, what you are to drink. _Taste,_ the prophet says, _and see that the Lord is good; blessed is the man who puts his trust in him._ Christ is in that sacrament, for it is the body of Christ. It is therefore not bodily food but spiritual. Thus the Apostle too says, speaking of its symbol: _Our fathers ate spiritual food and drank spiritual drink._ For the body of God is spiritual; the body of Christ is that of a divine spirit, for Christ is a spirit. We read: _The spirit before our face is Christ the Lord._ And in the letter of Saint Peter we have this: _Christ died for you._ Finally, it is this food that gives strength to our hearts, this drink which _gives joy to the heart of man,_ as the prophet has written.
+
