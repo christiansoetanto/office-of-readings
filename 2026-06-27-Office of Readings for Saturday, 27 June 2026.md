@@ -1,0 +1,16 @@
+
+
+**From a homily by Saint Gregory of Nyssa, bishop**
+
+(Orat. 6 De beatitudinibus: PG 44, 1270-1271)
+
+_God can be found in man’s heart_
+
+In our human life bodily health is a good thing, but this blessing consists not merely in knowing the causes of good health but in actually enjoying it. If a man eulogizes good health and then eats food that has unhealthy effects, what good is his praise of health when he finds himself on a sickbed? Similarly, from the Lord’s saying: _Blessed are the pure of heart, for they shall see God_, we are to learn that blessedness does not lie in knowing something about God, but rather in possessing God within oneself.
+
+I do not think these words mean that God will be seen face to face by the man who purifies the eye of his soul. Their sublime import is brought out more clearly perhaps in that other saying of the Lord’s: _The kingdom of God is within you._ This teaches us that the man who cleanses his heart of every created thing and every evil desire will see the image of the divine nature in the beauty of his own soul. I believe the lesson summed up by the Word in that short sentence was this: You men have within you a desire to behold the supreme good. Now when you are told that the majesty of God is exalted above the heavens, that his glory is inexpressible, his beauty indescribable, and his nature transcendent, do not despair because you cannot behold the object of your desire. If by a diligent life of virtue you wash away the film of dirt that covers your heart, then the divine beauty will shine forth in you.
+
+Take a piece of iron as an illustration. Although it might have been black before, once the rust has been scraped off with a whetstone, it will begin to shine brilliantly and to reflect the rays of the sun. So it is with the interior man, which is what the Lord means by the heart. Once a man removes from his soul the coating of filth that has formed on it through his sinful neglect, he will regain his likeness to his Archetype, and be good. For what resembles the supreme Good is itself good. If he then looks into himself, he will see the vision he has longed for. This is the blessedness of the pure in heart: in seeing their own purity they see the divine Archetype mirrored in themselves.
+
+Those who look at the sun in a mirror, even if they do not look directly at the sky, see its radiance in the reflection just as truly as do those who look directly at the sun’s orb. It is the same, says the Lord, with you. Even though you are unable to contemplate and see the inaccessible light, you will find what you seek within yourself, provided you return to the beauty and grace of that image which was originally placed in you. For God is purity; he is free from sin and a stranger to all evil. If this can be said of you, then God will surely be within you. If your mind is untainted by any evil, free from sin, and purified from all stain, then indeed are you blessed, because your sight is keen and clear. Once purified, you see things that others cannot see. When the mists of sin no longer cloud the eye of your soul, you see that blessed vision clearly in the peace and purity of your own heart. That vision is nothing else than the holiness, the purity, the simplicity and all the other glorious reflections of God’s nature, through which God himself is seen.
+
