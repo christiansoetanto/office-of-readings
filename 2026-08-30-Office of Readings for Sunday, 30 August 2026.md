@@ -1,0 +1,16 @@
+
+
+**From a sermon by Saint Augustine, bishop**
+
+(Sermo 23A, 1-4: CCL 41, 41, 321-323)
+
+_The Lord has had pity on us_
+
+Happy are we if we do the deeds of which we have heard and sung. Our hearing of them means having them planted in us, while our doing them shows that the seed has borne fruit. By saying this, I wish to caution you, dearly beloved, not to enter the Church fruitlessly, satisfied with mere hearing of such mighty blessings and failing to do good works. _For we have been saved by his grace,_ says the Apostle, _and not by our works, lest anyone may boast; for it is by his grace that we have been saved._ It is not as if a good life of some sort came first, and that thereupon God showed his love and esteem for it from on high, saying: “Let us come to the aid of these men and assist them quickly because they are living a good life.” No, our life was displeasing to him. He will, therefore, condemn what we have done but he will save what he himself has done in us.
+
+We were not good, but God had pity on us and sent his Son to die, not for good men but for bad ones, not for the just but for the wicked. Yes, _Christ died for the ungodly._ Notice what is written next: _One will hardly die for a righteous man, though perhaps for a good man one will dare even to die._ Perhaps someone can be found who will dare to die for a good man; but for the unjust man, for the wicked one, the sinner, who would be willing to die except Christ alone who is so just that he justifies even the unjust?
+
+And so, my brothers, we had no good works, for all our works were evil. Yet although men’s actions were such, God in his mercy did not abandon men. He sent his Son to redeem us, not with gold or silver but at the price of his blood poured out for us. Christ, the spotless lamb, became the sacrificial victim, led to the slaughter for the sheep that were blemished—if indeed one can say that they were blemished and not entirely corrupt. Such is the grace we have received! Let us live so as to be worthy of that great grace, and not do injury to it. So mighty is the physician who has come to us that he has healed all our sins! If we choose to be sick once again, we will not only harm ourselves, but show ingratitude to the physician as well.
+
+Let us then follow Christ’s paths which he has revealed to us, above all the path of humility, which he himself became for us. He showed us that path by his precepts, and he himself followed it by his suffering on our behalf. In order to die for us—because as God he could not die— _the Word became flesh and dwelt among us._ The immortal One took on mortality that he might die for us, and by dying put to death our death. This is what the Lord did, this the gift he granted to us. The mighty one was brought low, the lowly one was slain, and after he was slain, he rose again and was exalted. For he did not intend to leave us dead in hell, but to exalt in himself at the resurrection of the dead those whom he had already exalted and made just by the faith and praise they gave him. Yes, he gave us the path of humility. If we keep to it we shall confess our belief in the Lord and have good reason to sing: _We shall praise you, God, we shall praise you and call upon your name._
+
